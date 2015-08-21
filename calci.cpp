@@ -1,2 +1,3 @@
 WELCOME IN CUMMINS COLLEGE.
-HELLO,EVERYBODY
+today is fresher party
+hii friends nice to see all.
