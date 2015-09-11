@@ -1,4 +1,4 @@
-WELCOME IN CUMMINS COLLEGE.
-today is fresher party.
-i want to do something special in my life.
+it was fun 
+i am so happy
 nice to work with you guys.
+bye
